@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **python,machine learning,deep learning**
 
-- 📫 How to reach me **cyberanil29@gmail.com**
+- 📫 How to reach me **cyberanil27@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
